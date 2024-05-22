@@ -7,3 +7,8 @@ Musk tem um irmão mais novo, Kimbal (nascido em 1972) e uma irmã mais nova, To
 Durante a infância ele foi um ávido leitor.[24] Aos 10 anos, desenvolveu interesse em computação com o Commodore VIC-20.[25] Ele aprendeu de maneira autodidata programação de computadores aos 12 anos e vendeu o código de um jogo de vídeo baseado em BASIC que ele criou chamado Blastar para uma revista chamada PC and Office Technology por cerca de 500 dólares.[26][27] Uma versão web do jogo está disponível on-line.[26][28] Sua leitura da infância incluiu a Série da Fundação de Isaac Asimov, da qual ele tirou a lição de que "você deve tentar tomar o conjunto de ações que provavelmente prolongarão a civilização, minimizarão a probabilidade de uma idade das trevas e reduzirão o tamanho de uma era das trevas se houver uma."[22]
 
 Musk sofreu severamente com bullying ao longo de sua infância,[22] e foi hospitalizado quando um grupo de meninos o jogou por um lance de escadas e depois o espancaram até perder a consciência.[24][29] Ele se mudou para o Canadá em junho de 1989, pouco antes do seu 18.º aniversário,[30] depois de obter a cidadania canadense através de sua mãe nascida no país.[31][32]
+O foguete mais poderoso já desenvolvido na história está prestes a ser lançado pela primeira vez nesta segunda-feira (17/04).
+
+O veículo, conhecido como Starship, foi construído pela companhia SpaceX, do empresário Elon Musk.
+
+Ele tem quase 120 metros de altura e foi projetado para ter quase o dobro da propulsão de qualquer outro foguete já construído (veja detalhes abaixo).
