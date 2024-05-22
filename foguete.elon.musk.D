@@ -12,3 +12,7 @@ O foguete mais poderoso já desenvolvido na história está prestes a ser lança
 O veículo, conhecido como Starship, foi construído pela companhia SpaceX, do empresário Elon Musk.
 
 Ele tem quase 120 metros de altura e foi projetado para ter quase o dobro da propulsão de qualquer outro foguete já construído (veja detalhes abaixo).
+Elon Musk tem vários filhos de relacionamentos anteriores e com sua atual parceira, a cantora Grimes. Musk tem cinco filhos com sua primeira esposa, Justine Musk, e um filho com sua segunda esposa, a atriz Talulah Riley. Com Grimes, Elon Musk tem um filho. Embora não haja muitas informações públicas sobre a dinâmica exata do relacionamento de Elon Musk com seus filhos, ele já mencionou em entrevistas e redes sociais que passa tempo com eles e que se preocupa com seu bem-estar. Além disso, Musk frequentemente compartilha fotos e histórias de suas interações com seus filhos em suas redes sociais, mostrando que ele valoriza seu papel como pai.
+
+
+
